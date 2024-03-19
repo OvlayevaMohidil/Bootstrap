@@ -1,0 +1,6 @@
+![image](https://github.com/OvlayevaMohidil/Bootstrap/assets/159124258/d4f02cb2-48bf-4f5c-b4fc-d17071ed4178)
+![image](https://github.com/OvlayevaMohidil/Bootstrap/assets/159124258/cd0ded3f-197e-4ccd-8ddb-afd1a6e5fb32)
+![image](https://github.com/OvlayevaMohidil/Bootstrap/assets/159124258/eb355edb-f021-4764-a7cc-ed0f511efe14)
+![image](https://github.com/OvlayevaMohidil/Bootstrap/assets/159124258/15475f9c-d80c-4182-8ef7-ca0fad91d5fb)
+![image](https://github.com/OvlayevaMohidil/Bootstrap/assets/159124258/26ec559b-b037-485f-b2ce-6e24c9167fa0)
+![image](https://github.com/OvlayevaMohidil/Bootstrap/assets/159124258/44a792a5-dfa5-4626-b026-382a9d4b81ee)
